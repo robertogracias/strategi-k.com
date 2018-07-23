@@ -1,0 +1,1 @@
+# strategi-k.com
